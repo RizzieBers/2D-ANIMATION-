@@ -1,3 +1,3 @@
 ## My Animation Video
 
-[Click here to watch my animation](https://drive.google.com/drive/folders/1kXIfu1X_QBApVOz3afFcVAbtMSL3Pz0v)
+[Click here to watch my animation](https://drive.google.com/file/d/1RyDbezj4jkTC3YW91lIK8PdYb7-aCs6F/view?usp=sharing)
